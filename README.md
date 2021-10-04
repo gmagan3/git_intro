@@ -1,2 +1,1 @@
 Guleid Magan
-12
